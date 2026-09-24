@@ -1,3 +1,8 @@
-# 2BSIT-4
-
 #SM: Spotibai
+Dua
+Palivino
+Raguine
+Derek
+Dote
+
+
